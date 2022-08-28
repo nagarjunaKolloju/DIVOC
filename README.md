@@ -1,3 +1,3 @@
 https://nagarjunakolloju.itch.io/divoc
 
-The Above link Takes us to our game.
+The Above link Takes you to our game.
